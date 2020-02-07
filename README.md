@@ -1,2 +1,4 @@
 # csharp shit
- lmao wtf
+ Shit I do in class
+# steal all the code you want
+# i dont care
